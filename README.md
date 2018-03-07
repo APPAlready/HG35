@@ -12,7 +12,7 @@ This app is mainly for users to experience classic baccarat games, each user can
 Special Statement:
 All this should have nothing to do with the Apple company, and in order to limit user use, only open to the development of the region and charge the appropriate fee.
 
-Email : xl51040782@sina.com
-TEL : +65 8388 8563
+Email : ap63514574@sina.com
+TEL : +852 51653942
 
 
